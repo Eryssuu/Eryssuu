@@ -9,3 +9,8 @@
 - 📫 Como me encontrar: ... não me procure
 - 😄 Pronomes: ... ele/dele ou ela/dela
 - ⚡ Fun fact: ... eu sei fazer crochê. e eu estou entrando na comunidade gótica
+
+
+
+![](https://media1.tenor.com/m/azNNxWJsLQMAAAAC/shenhe-yelan.gif)
+
